@@ -1,7 +1,5 @@
 联系购买我的产品TG: 我总是提供低价
-✔我公司提供24小时售后服务✔
-📌🔠🔠🅰️🔠🔠🔠🔠📌
-➡️➡️➡️➡️➡️➡️➡️➡️⬇️
+我公司提供24小时售后服务
 超级GV  可用的 
 商业GV  可用的
 企业GV  可用的
@@ -11,7 +9,7 @@ Web 登录 index 可用的
 Web 登录 sideline 可用的
 提供旧/新 TN 可用的
 Cokisss TN 可用 
-Textfree (T📱F) 可用的
+Textfree (TF) 可用的
 Tolkaton (TT) 可用 
 FB,TG，可用 /2号线可用 
 R4, Gamill 可供出售 
